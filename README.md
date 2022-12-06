@@ -1,3 +1,3 @@
 # DataBase
 
-https://docs.google.com/document/d/1bpGcxJJV6UDNQvfu5ir5IafOF6rOuoPXjk-t0VhGRhk/edit?usp=sharing
+https://drive.google.com/drive/folders/1QRzL9DUecCa0PpKKNE_2dtvIV2smJfoI?usp=share_link
